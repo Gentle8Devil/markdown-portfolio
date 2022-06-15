@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Link to my telegram](https://t.me/Anon_euph_yMuS_ric)
